@@ -4,7 +4,7 @@
 **Objective:** Leverage U.S. Navy operational experience to demonstrate the structural discipline required for high-level developmental editing and narrative architecture.
 
 ## 1. The Role
-* **Military Title:** Petty Officer / Service Member (U.S. Navy)
+* **Military Title:** Petty Officer 3rd Class (U.S. Navy)
 * **Civilian Translation:** Operational Logistics & Quality Assurance Specialist
 * **Timeline:** 2021 – 2025 (Honorable Discharge)
 
